@@ -1,6 +1,7 @@
 # Candy AI Review 2026: Features, Pricing, Real Costs, and Competitor Comparisons
 
 **Last updated: October 2026. This review is intended for adults aged 18 and over. Candy AI is an adult-oriented platform.**
+<img width="2752" height="1536" alt="Anime_woman_in_swimsuit_2K_20261011073242" src="https://github.com/user-attachments/assets/636597c3-2ef9-4bfb-8226-05700de02527" />
 
 ## Introduction
 
@@ -55,6 +56,7 @@ Tokens are the currency for media. Every paid plan includes roughly 100 tokens p
  | Voice message | Small token amount | A few cents per message |
  | Video clip | Higher token amount | Several dollars per clip depending on length |
  | Token packs | Varies | Bundles up to about 3,750 tokens for around $300 |
+<img width="2752" height="1536" alt="Woman_in_miniskirt_smiling_2K_20261011072644" src="https://github.com/user-attachments/assets/5beb7635-a4d7-49f4-829b-6786b703d734" />
 
 ## The Real Cost: Subscription Plus Tokens
 
@@ -101,6 +103,7 @@ The two platforms serve different priorities. Candy AI wins on visuals: photorea
  | Platform | Browser only | iOS, Android, web |
 
 ## Candy AI vs Character.AI
+<img width="2752" height="1536" alt="Woman_smiling_in_miniskirt_2K_20261011072942" src="https://github.com/user-attachments/assets/50d9b376-6f2f-450f-9693-21c9b2b721ea" />
 
 Character.AI is the biggest name in AI characters overall, with millions of community-created characters and a generous free tier with unlimited text. It is strictly SFW, has no native image or video generation of your character, and conversations, while creative, often lack persistent memory — characters frequently forget earlier exchanges.
 
@@ -157,6 +160,7 @@ Against both, Candy AI offers substantially better media quality and a more poli
  | Nectar AI | About $9.99/mo | Limited | Yes | Yes | Ultimate tier | Yes | Deepest in category | Long-term memory |
  | SpicyChat | About $14.95/mo | Unlimited text | Yes | Limited | No | No | Shallow | Free adult chat |
  | CrushOn AI | About $4.99/mo | 100 credits/mo | Yes | Yes | No | No | Moderate | Budget adult chat |
+<img width="2752" height="1536" alt="Blonde_woman_in_red_swimsuit_2K_20261011073153" src="https://github.com/user-attachments/assets/fe07b466-dbc4-4156-8f9e-8047daae2852" />
 
 ## Who Candy AI Is For — and Who Should Look Elsewhere
 
